@@ -12,7 +12,7 @@
 
 - 👯 I’m looking to collaborate on **Any Project**
 
-- 👨‍💻 All of my projects are available at [Github.com/satyamxuniverse](Github.com/satyamxuniverse)
+- 👨‍💻 All of my projects are available at [Github.com/SatyamXUniVerse](https://github.com/satyamxuniverse)
 
 - 📫 How to reach me **rpsatyam05@gmail.com**
 
